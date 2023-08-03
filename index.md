@@ -1,1 +1,1 @@
-no matter which way you feel, fight for what you believe in
+"I don't feel like getting political", as I get increasingly political
