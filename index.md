@@ -1,1 +1,1 @@
-"I don't feel like getting political", as I get increasingly political
+i don't like the internet, and it owes me a large amount of time and money
